@@ -32,7 +32,7 @@ ___THIS TOOL IS PAID BRO IF YOU WANT TO BUY THEN COME.___</br>
 <h2>🔻____SCREENSHOT____🔻 </h2>
 <br>
 <p align="center">
-<img src="https://github.com/Mafiyahunter/MULTI-2/assets/110088114/0a0ad514-8c32-4211-a59d-d786414e1e8b"/>
+<img src="https://github.com/Mafiyahunter/Cookie-converter/assets/110088114/1f697964-419b-49c9-9742-6719625736ff"/>
 </p>
 
 <p align="center"> 
